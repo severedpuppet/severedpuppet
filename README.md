@@ -10,7 +10,7 @@
 
 ⠀[ATABOOK](https://coruscants.atabook.org/)ㅤ ㅤ ㅤ  [STRAWPAGE](https://cainesrequiem.straw.page/)
 
-***C+H Highly encouraged w/ this github attached !!***
+***C+H Highly encouraged w/ this github attached unless name states otherwise !!***
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=j4je4orn69ob4m7lsnjly67zb&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=b3a6e2&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
